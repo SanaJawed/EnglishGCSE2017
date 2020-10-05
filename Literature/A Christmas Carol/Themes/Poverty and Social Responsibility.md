@@ -32,3 +32,4 @@
 - The Cratchits are poor but they appreciate what they have. They're portrayed as an unrealistically perfect family who don't need money to make them emotionally rich. By contrast, Scrooge is financially wealthy, but he's poor in companionship and enjoyment. Fred explains that, even though Scrooge is rich, he's deserving of pity because "His wealth is of no use to him".
 - Fred emphasises the value of emotion richness to him when he says that although Christmas never put "a scrap of gold or silver" in his pocket, it's made him richer in spirit and "done me good".
 - Fezziwig is a successul businessman, but he's also rich emotionally. He uses some of his wealth to bring happiness and joy to himself and those around him.
+jdonny was here
